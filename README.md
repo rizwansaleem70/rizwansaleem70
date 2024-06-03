@@ -30,6 +30,3 @@ Ready to turn your vision into reality? Reach out for a detailed discussion on h
 ## Commitment to Excellence
 
 My commitment to continuous learning and quality makes me the ideal partner for your next project. I offer precision, innovation, and efficiency, striving to exceed expectations and deliver exceptional results.
-
----
-Rizwan Saleem
